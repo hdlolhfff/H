@@ -6,4 +6,7 @@
  
  this is hotbar.nbt: https://mega.nz/file/iiwWVCJK#ZvWDqbWUaLVkyzfV07FwDwifLZ6b7RqpQlj9TDR1Lho
 
+ GET IF NOT HAVE: https://github.com/Diegiwg/PrismLauncher-Cracked/releases/tag/10.0.2
+
+
 updated 2.13.2026 at 9:00 AM
