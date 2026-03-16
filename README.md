@@ -16,6 +16,5 @@ Updated 3.16.2026
  this is hotbar.nbt: https://mega.nz/file/iiwWVCJK#ZvWDqbWUaLVkyzfV07FwDwifLZ6b7RqpQlj9TDR1Lho
 
 
-https://mega.nz/file/bm43jJzY#FJJT07ExbhDxAAvpPkaloOG7tmk0_12MztxNy63TTlU
 
 https://github.com/agourlay/zip-password-finder
