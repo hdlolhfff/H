@@ -18,3 +18,6 @@ Updated 3.16.2026
 
 
 https://github.com/agourlay/zip-password-finder
+
+
+for later https://github.com/The2AndOnly/fnaf-python-bot
