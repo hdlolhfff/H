@@ -2,7 +2,7 @@
 
  1.21.11 java.zip :
  
- 1.21.11.zip for cracked:
+ 1.21.11.zip for cracked: https://mega.nz/file/b34kGZwb#Pi5BLzRe6oNLxvjyHl18xoV2ogdZV0gYQ4w2_PyaJBA
  
 GET THIS IF YOU NEED IT: https://github.com/Diegiwg/PrismLauncher-Cracked/releases
 
