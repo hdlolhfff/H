@@ -1,23 +1,10 @@
-# E
+# MY STUFF
 
+ 1.21.11 java.zip :
  
- 1.21.11 java.zip : https://drive.google.com/file/d/1uY8RUIxucypHOuCSSBSVW0bZvMmXBPGM/view?usp=sharing
+ 1.21.11.zip for cracked:
  
- 
- 1.21.11.zip for cracked: https://mega.nz/file/rzBQmJLZ#kj8o8fvC4FmKIQW51qGntOjvhCWfjJDVlemecjV4C0Q
- 
- 
- GET IF NOT HAVE: https://github.com/Diegiwg/PrismLauncher-Cracked/releases
+GET THIS IF YOU NEED IT: https://github.com/Diegiwg/PrismLauncher-Cracked/releases
  
 
-Updated 3.16.2026
-
-
- this is hotbar.nbt: https://mega.nz/file/iiwWVCJK#ZvWDqbWUaLVkyzfV07FwDwifLZ6b7RqpQlj9TDR1Lho
-
-
-
-https://github.com/agourlay/zip-password-finder
-
-
-for later https://github.com/The2AndOnly/fnaf-python-bot
+Updated 6.16.2026
