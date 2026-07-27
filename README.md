@@ -6,9 +6,11 @@
  
 GET THIS IF YOU NEED IT: https://github.com/Diegiwg/PrismLauncher-Cracked/releases
 
- Celeste (With mods and without) : https://mega.nz/folder/X2pHAbQK#ETQSUkhiYHNg3bEvtRpR9g
+Celeste (With mods and without) : https://mega.nz/folder/X2pHAbQK#ETQSUkhiYHNg3bEvtRpR9g
 
 Updated mods for Celeste : https://mega.nz/file/2uwWkY6T#7PDxbk7tv4A2n1qyW_WgbiovS7YjSrEtvrvaaFt2Nrk
+
+Mod Celeste hehehe: https://drive.google.com/drive/folders/1JtsfsLT2qfVfyA7pysFZLbE950kFbt_N?usp=sharing
 
 How to install mods for ksp : https://mega.nz/file/OzhhQZgB#gpG62ZMhTBV_v2H1XMTbeNYTrgCnEs_S4Kc8bM5UB-U
 
