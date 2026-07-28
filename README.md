@@ -15,3 +15,12 @@ Mod Celeste hehehe: https://drive.google.com/drive/folders/1JtsfsLT2qfVfyA7pysFZ
 How to install mods for ksp : https://mega.nz/file/OzhhQZgB#gpG62ZMhTBV_v2H1XMTbeNYTrgCnEs_S4Kc8bM5UB-U
 
 Updated 6.16.2026
+
+
+
+
+
+https://drive.google.com/drive/folders/1Zdz_u0MpvWf2lJn0g5HjBTmldnsXbZk2?usp=sharing
+
+
+https://drive.google.com/drive/folders/1Zdz_u0MpvWf2lJn0g5HjBTmldnsXbZk2?usp=sharing
